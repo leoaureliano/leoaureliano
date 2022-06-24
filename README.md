@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Leonardo M. Aureliano
-- 👀 I’m interested in Games and Manga
+- 👀 I’m interested in Games,Movies and Manga
 - 🌱 I’m currently learning Computer Science in Douglas College
 - 💞️ I’m looking to collaborate on any kind of IT business but I would like to be a data scients one day
 - 📫 How to reach me leomaureliano@gmail.com / number +1 236 833 7022 or leomaureliano on instagram.
